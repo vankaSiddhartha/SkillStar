@@ -20,5 +20,5 @@ SkillStar provides a space for individuals to connect with like-minded peers and
 7. <img src="https://firebasestorage.googleapis.com/v0/b/mycrush-9ec67.appspot.com/o/WhatsApp%20Image%202024-03-17%20at%207.32.49%20PM%20(2).jpeg?alt=media&token=6847d532-afcb-462f-a274-d198e8145fea" width="150">
 8. <img src="https://firebasestorage.googleapis.com/v0/b/mycrush-9ec67.appspot.com/o/WhatsApp%20Image%202024-03-17%20at%207.32.49%20PM%20(1).jpeg?alt=media&token=f2ef29c5-8d74-4cdc-af41-59c516d23fac" width="150">
 
-Feel free to explore SkillStar and embark on a journey of learning and growth with us. Thank you for joining our community!
+Feel free to explore SkillStar and embark on a journey of learning and growth with us. Thank you for joining our community! join now
 
